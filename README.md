@@ -1,2 +1,2 @@
 # i18nsample
-![alt tag](http://tinypic.com?ref=10zxq9f)
+![alt tag](http://oi67.tinypic.com/10zxq9f.jpg)
